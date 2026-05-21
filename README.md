@@ -8,8 +8,7 @@ and who else?  maybe me>?
 
 str
 
-///фыв
-////??
+///фывjhgvj,yfg
 asdadsasdfafsdsdf
 ////dfggfdasdsd
 ...adfsasdf
